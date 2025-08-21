@@ -2,7 +2,7 @@
 
 Pronouns: she / her
 
-working in ✨ Family Sociology and Demography ✨ 
+I'm working in Family Sociology and Demography
 
 🔭 Worked on subjective well-being of parents in Austria in the beginning of the Covid-19 pandemic.
 
